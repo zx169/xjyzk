@@ -1,4 +1,4 @@
-✪ **本页网址 https://github.com/zx169/xjyzk**        ✪ **主页网址 https://github.com/zx168/168**
+✪ **本页网址 https://github.com/zx169/xjyzk** 
 
 [![xjy481](https://cloud.githubusercontent.com/assets/19661061/15993895/496d139c-30f4-11e6-81ae-a090d21a165d.jpg)](https://d1zsng9cxdrwyc.cloudfront.net/pdf/xjyzk/N483.pdf)
 
@@ -14,4 +14,4 @@
 
 [![xjy-book](https://cloud.githubusercontent.com/assets/18081243/14840784/d105c716-0c7a-11e6-8687-d9eabda06f17.jpg)](https://d6rojcwfw6e31.cloudfront.net/hk/books/shop)
 
-
+✪ **更多精彩内容 https://github.com/zx168/168**
