@@ -1,6 +1,7 @@
 ✪ **本页网址 https://github.com/zx169/xjyzk**        ✪ **更多内容请见 https://github.com/zx168/168**
 
 [![xjy-book](https://cloud.githubusercontent.com/assets/18081243/14840784/d105c716-0c7a-11e6-8687-d9eabda06f17.jpg)](https://d6rojcwfw6e31.cloudfront.net/hk/books/shop)
+
 新纪元周刊封面故事
 
 总揽大权 学者为习近平当总统造势
