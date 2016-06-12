@@ -2,7 +2,9 @@
 
 [![xjy-book](https://cloud.githubusercontent.com/assets/18081243/14840784/d105c716-0c7a-11e6-8687-d9eabda06f17.jpg)](https://d6rojcwfw6e31.cloudfront.net/hk/books/shop)
 新纪元周刊封面故事
+
 总揽大权 学者为习近平当总统造势
+
 胡锦涛的头号幕僚俞可平半年多来陆续发表七篇文章， 暗喻习近平要想树立政治权威，就必须要走民主、法治和善治之路。
 
 
