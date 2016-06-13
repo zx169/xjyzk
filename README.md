@@ -10,9 +10,9 @@
 
 [![xjy480](https://cloud.githubusercontent.com/assets/18081243/15528390/1222d6da-2233-11e6-983c-a211c39a1351.jpg)](https://d1zsng9cxdrwyc.cloudfront.net/pdf/xjyzk/N480.pdf) 
 
-更多精彩图书请见[新纪元书城](https://d6rojcwfw6e31.cloudfront.net/hk/books/shop)...
+更多精彩图书请见[新纪元书城](https://d36zp4xmcitilj.cloudfront.net/cn/books/shop?m=https://d36zp4xmcitilj.cloudfront.net&q=234234343244324)...
 
-[![xjy-book](https://cloud.githubusercontent.com/assets/18081243/14840784/d105c716-0c7a-11e6-8687-d9eabda06f17.jpg)](https://d6rojcwfw6e31.cloudfront.net/hk/books/shop)
+[![xjy-book](https://cloud.githubusercontent.com/assets/18081243/14840784/d105c716-0c7a-11e6-8687-d9eabda06f17.jpg)](https://d36zp4xmcitilj.cloudfront.net/cn/books/shop?m=https://d36zp4xmcitilj.cloudfront.net&q=234234343244324)
 
 <a ID="book-032" href="https://d36zp4xmcitilj.cloudfront.net/cn/book/江澤民逼習近平反目成仇-41637146?m=https://d36zp4xmcitilj.cloudfront.net&q=234234343244324" title="江澤民逼習近平反目成仇"><img  border="0" width="150"  alt="江澤民逼習近平反目成仇" src="https://cloud.githubusercontent.com/assets/19661274/15989149/cfa15520-30b0-11e6-962b-d8b2ffdc4326.jpg" /></a>
 <a ID="book-024" href="https://d36zp4xmcitilj.cloudfront.net/cn/book/習江三次生死交鋒-86283711?m=https://d36zp4xmcitilj.cloudfront.net&q=234234343244324" title="習江三次生死交鋒"><img  border="0" width="150"  alt="習江三次生死交鋒" src="https://cloud.githubusercontent.com/assets/19661274/15989140/cf68ccdc-30b0-11e6-994e-ca0a6ac63bdc.jpg" /></a>
