@@ -1,6 +1,6 @@
 ✪ **本页网址 https://github.com/zx169/xjyzk** 
 
-[![xjy481](https://cloud.githubusercontent.com/assets/19661061/15993895/496d139c-30f4-11e6-81ae-a090d21a165d.jpg)](https://d1zsng9cxdrwyc.cloudfront.net/pdf/xjyzk/N483.pdf)
+[![xjy481](https://cloud.githubusercontent.com/assets/19661061/16022132/a02b6928-31b6-11e6-947a-beded1d4219d.jpg)](https://d1zsng9cxdrwyc.cloudfront.net/pdf/xjyzk/N483.pdf)
 
 更多内容请点击下面图片文件，下载相应的[pdf文件](https://d1zsng9cxdrwyc.cloudfront.net/pdf/xjyzk/N483.pdf)阅读
 
